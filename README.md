@@ -1,2 +1,0 @@
-# mysteryisland.github.io
- 
